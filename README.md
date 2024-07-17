@@ -43,6 +43,10 @@ Benefits:
 ## Performance vs Salary
 ![image](https://github.com/user-attachments/assets/d434592d-bf41-4042-85e9-f8d8ccf27644)
 
+## Score Card IND vs NZA
+![image](https://github.com/user-attachments/assets/1d0ecbad-de11-4432-8246-70fbfdf88f8b)
+
+
 
 
 
